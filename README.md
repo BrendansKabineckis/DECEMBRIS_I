@@ -1,0 +1,1 @@
+Man padevās labi ar šo pārbaudes darbu. Es sapratu visu doto, bet sagādāja grūtības stumt kodu uz GITHUB
